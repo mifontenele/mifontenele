@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mifontenele. I'm from Fortaleza, Ceará, Brazil
 - 👀 I’m interested in acquire full stacks knowledges
 - 🌱 I’m currently I'm a student at Digital College
-- 💞️ I’m still learning yet but very soon I'll be prepared to collaborate on some projects 
+- 💞️ I'm still studying so I'm looking for remote work opportunities for beginners.
 - 📫 You can reach me by sending e-mail to milenafontenele@hotmail.com.
 
 <!---
